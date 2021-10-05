@@ -1,5 +1,5 @@
 <h1 align="center">Hello, I'm Iroha</h1>
-I’m currently an Uaena's member💗 interested in playing video game, watching animu...👉👈
+I’m currently an Uaena's member 💗 and interested in playing video game, watching animu...👉👈
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
